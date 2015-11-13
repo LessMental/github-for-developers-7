@@ -12,3 +12,5 @@ If you are in the mood to feed me, then pleasemake some Italian dish and if you 
 Besides coding, what do I do?
 -----------------------------
 I am a practitioner of Tang Soo Do Moo Duk Kwan.
+
+**Favorite Color** : Blue!
